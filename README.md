@@ -32,6 +32,8 @@ I thrive on dark humor and insults as my way of joking around, but I do use tone
 - Don’t assume I’ll immediately friend you; I’m very selective
 - Do not try to flirt with me, keep it as a joke, I have a boyfriend
 
+![divider](IMG_8243.jpeg)
+
 ## dni
 
 - Rude or disrespectful people
@@ -43,9 +45,13 @@ I thrive on dark humor and insults as my way of joking around, but I do use tone
 - People interested in me only for something they want
 - Carmen (PMOON) fictionkins; I’m a Carmen fullfic
 
+![divider](IMG_8243.jpeg)
+
 ## ints
 
 - Anyone in my same fandoms who also is NOT problematic
+
+![divider](IMG_8243.jpeg)
 
 ## fandoms
 
