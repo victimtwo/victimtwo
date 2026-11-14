@@ -39,7 +39,7 @@ I thrive on dark humor and insults as my way of joking around, but I do use tone
 - Rude or disrespectful people
 - Manipulative or pushy behavior
 - Intimidation or pressure
-- RusAme shippers (sorry, Hetalia fans 😣)
+- RusAme shippers (sorry Hetalia fans I fucking hate it 😣)
 - Darkshippers with no intention of changing in the future
 - Proshippers
 - People interested in me only for something they want
