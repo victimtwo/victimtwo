@@ -17,7 +17,7 @@ I have recently turned 18 years old, and I’m interested in gaming, movies, ARG
 
 I’m an introvert and quite awkward when it comes to social interactions. I rarely interact first, so it’s better not to wait for me to do that. Despite this, I love when people whisper to have a conversation, as I’m much more open in private most of the time.
 
-**Always C+H and W2I.** I might reply in public chat too, depending on how I’m feeling.
+**Always C+H and W2I.** I might reply in public chat too, depending on how I’m feeling. I’m a multishipper, no matter the fandom, so idm ships as long as they’re not problematic, same with yumeships. 
 
 I thrive on dark humor and insults as my way of joking around, but I do use tone tags with people I’m not close to. If I say something that seems borderline rude, take it as me forgetting to use tone tags—it’s quite possible. I wouldn’t go out of my way to start arguments or drama in public anyway.
 
