@@ -95,8 +95,6 @@ I thrive on dark humor and insults as my way of joking around, but I do use tone
 
 ---
 
-![divider](IMG_8243.jpeg)
-
 > " Uh oh, bad decision, Mark! " 🌹
 
 ![divider](IMG_8243.jpeg)
