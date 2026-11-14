@@ -1,3 +1,4 @@
+![divider](IMG_8243.jpeg)
 ![Cesar Torres](IMG_4348.jpeg)
 ![divider](IMG_8243.jpeg)
 # CESAR / EVAN
@@ -7,6 +8,8 @@
 > " You need to open the door NOW… I am not going away. " 🌹
 
 ---
+
+![divider](IMG_8243.jpeg)
 
 ## about
 
@@ -19,6 +22,8 @@ I’m an introvert and quite awkward when it comes to social interactions. I rar
 I thrive on dark humor and insults as my way of joking around, but I do use tone tags with people I’m not close to. If I say something that seems borderline rude, take it as me forgetting to use tone tags—it’s quite possible. I wouldn’t go out of my way to start arguments or drama in public anyway.
 
 ---
+
+![divider](IMG_8243.jpeg)
 
 ## boundaries
 
@@ -83,5 +88,7 @@ I thrive on dark humor and insults as my way of joking around, but I do use tone
 - Elevator Hitch
 
 ---
+
+![divider](IMG_8243.jpeg)
 
 > " Uh oh, bad decision, Mark! " 🌹
